@@ -1,1 +1,1 @@
-# project-propsal-for-nec
+# project-proposal-for-nec
